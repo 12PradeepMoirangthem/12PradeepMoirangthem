@@ -1,4 +1,4 @@
-## Hi there 👋  
+## Hi, I am Pradeep👋  
 
 *12PradeepMoirangthem/12PradeepMoirangthem* is a ✨ special ✨ repository because its README.md appears on your GitHub profile.  
 
